@@ -1,1 +1,1 @@
-# -habitudes-de-d-penses-de-1-000-tudiants
+# Habitudes-de-depenses-de-1-000-tudiants
